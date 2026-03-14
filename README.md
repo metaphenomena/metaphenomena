@@ -2,9 +2,9 @@
 
 yeah ok i give up  
 
-<a href="https://www.youtube.com/watch?v=tn6jAoVZPZc"><img src="https://komarev.com/ghpvc/?username=piggeonna&color=52443f&amp;label=neons:" align="center" alt="pv" title="scizodipshit"/></a>
+<a><img src="https://komarev.com/ghpvc/?username=piggeonna&color=3a4252&amp;label=nya" align="center" alt="pv" title="scizodipshit"/></a>
 
-<a href="https://www.last.fm/user/piggeonna"><img src="https://lastfm-recently-played.vercel.app/api?user=piggeonna&show_user=header&footer_style=compact_stats&count=1&width=600&loved=true&header_style=normal&bg_color=52443f" alt="last.fm player yaya" title="yeah, just me"/></a>
+<a href="https://www.last.fm/user/piggeonna"><img src="https://lastfm-recently-played.vercel.app/api?user=piggeonna&show_user=header&footer_style=compact_stats&count=1&width=600&loved=true&header_style=normal&bg_color=3a4252" alt="last.fm player yaya" title="yeah, just me"/></a>
 
 <a href="https://akuta.atabook.org/"><img src="https://files.catbox.moe/fsf87h.png" align="center" height="50" alt="atabook" title="ts"> </a>
 
