@@ -41,6 +41,21 @@ yeah ok i give up
 
 <a href="https://rentry.co/strayphenomena"><img src="https://files.catbox.moe/mj0ft5.png" align="center" width="170" alt="rentry" title="⟡"></a>&nbsp;&nbsp;<a href="https://guns.lol/golf_wang"><img src="https://files.catbox.moe/czva44.png" align="center" width="170" alt="guns.lol" title="⟡"></a>&nbsp;&nbsp;<a href="https://bad-attitude.straw.page/"><img src="https://files.catbox.moe/yrfwu6.png" align="center" width="170" alt="strawpage" title="⟡"></a>&nbsp;&nbsp;<a href="https://akuta.atabook.org/"><img src="https://files.catbox.moe/en1iwx.png" align="center" width="170" alt="atabook" title="⟡"></a>&nbsp;&nbsp;<a href="https://pronouns.cc/@piggeonna"><img src="https://files.catbox.moe/qoaqek.png" align="center" width="170" alt="pronouns.cc" title="⟡"> 
 
-<br><br/>
+<br>
+
+<details>
+<summary> awards/mentions yay</summary>
+<table>
+  
+  pt-fashion
+  <img src="https://files.catbox.moe/fc5le8.png" height="100">
+
+  pt-walk-of-fame
+  <img src="https://files.catbox.moe/hwkty2.png" height="100">
+  (am also there in prettiest ponies but im not ssing all that loll)
+
+  theres more but am lazy,, when have the time to go searching will add :3
+</table>
+</details>
 
 <img src="https://files.catbox.moe/898i6z.png" align="center" height="150" alt="divider bottom" title="⟢">
